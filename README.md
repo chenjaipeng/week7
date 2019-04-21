@@ -14,15 +14,15 @@
 *** 
 关键词：
 
-幽默
+幽默(Humor)
 
-漫画
+漫画(Cartoon)
 
-变革
+变革(Reform)
 
-规定
+规定(Regulations)
 
-爱护
+爱护(Care)
 
 ***
 参考视频：
