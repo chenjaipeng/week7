@@ -12,17 +12,17 @@
 > 有教养的智慧，少唠叨纠缠的那一种，是更具说服力的。想单独靠严肃去解决有争议的问题，不如配合巧妙的嘲笑更有力--[霍勒斯](https://baike.baidu.com/item/%E8%B4%BA%E6%8B%89%E6%96%AF/1544148?fr=aladdin), 罗马讽刺家
 
 *** 
-关键词：
+**关键词:**
 
-幽默(Humor)
+**幽默(Humor)**
 
-漫画(Cartoon)
+**漫画(Cartoon)**
 
-变革(Reform)
+**变革(Reform)**
 
-规定(Regulations)
+**规定(Regulations)**
 
-爱护(Care)
+**爱护(Care)**
 
 ***
 参考视频：
